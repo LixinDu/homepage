@@ -1,2 +1,0 @@
-# Homepage for Lixin Du
-
